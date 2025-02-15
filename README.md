@@ -1,0 +1,2 @@
+# sofiminadki
+Para Sofia Minadki
