@@ -1,2 +1,2 @@
 # sofiminadki
-Para Sofia Minadki
+Para Sofia Minadaki
